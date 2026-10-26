@@ -1,1 +1,0 @@
-# gabryeli.moranguinho_lindinha-w-
